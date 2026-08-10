@@ -1,2 +1,2 @@
 # Putoshuk
-Puto with pandan that will shook ur sense of taste
+Puto with pandan that will shock ur sense of taste
